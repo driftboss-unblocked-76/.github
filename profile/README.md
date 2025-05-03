@@ -1,7 +1,7 @@
 # Drift Boss Unblocked – Conquer Every Curve 
 Looking for a quick, addictive drift game you can play anywhere? Drift Boss delivers instant fun with its simple one-tap controls and ever-increasing challenge. And if you’ve ever run into blocked school or office networks, just search drift boss unblock to get rolling in seconds—no download required!
 
-## **Play Drift Boss Unblocked Now**
+## **[Play Drift Boss Unblocked Now](https://1kb.link/TtgN0Q)**
 
 ## 🎮 What Makes Drift Boss So Addictive?
 One-Tap Drifting
